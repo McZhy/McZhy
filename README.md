@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hi I'm Jose M. Cuñat. 
+
+You can read more about me in my website http://jmcunat.es/
